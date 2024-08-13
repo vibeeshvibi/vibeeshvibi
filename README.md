@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **vibeeshnataraj1@gmail.com**
 
-- 📄 View my Resume through [https://drive.google.com/file/d/1BwfAMrCo6XsoTNKzkXjhFt9wnhb1GHPF/view?usp=drive_link](https://drive.google.com/file/d/1BwfAMrCo6XsoTNKzkXjhFt9wnhb1GHPF/view?usp=drive_link)
+- 📄 View my Resume through [https://drive.google.com/file/d/1BwfAMrCo6XsoTNKzkXjhFt9wnhb1GHPF/view?usp=drive_link](https://drive.google.com/file/d/1xX8czYSilKvhnSqA4osqQakpt2KQs0Go/view?usp=drivesdk)
 
 - ⚡ Fun fact **Once as a project's deadline was near my neck, i was making a website while travelling, sitting in the back of my bike. LOL, funny days.**
 
